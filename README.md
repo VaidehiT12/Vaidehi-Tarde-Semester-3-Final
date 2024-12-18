@@ -1,1 +1,1 @@
-My Perosnal Portfolio for my Semester 3 exam
+My Personal Portfolio for my Semester 3 exam
